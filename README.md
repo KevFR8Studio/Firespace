@@ -16,4 +16,4 @@ Musique de fond:
 
 - https://freesound.org/s/610504/
 
-© KevCorp, 2025 
+© KevFR8 Studio, 2025 
